@@ -1,2 +1,2 @@
 # russkodelica
-Art of Russkodelica
+Art of Russkodelica Records Company with Friends. 
